@@ -5,7 +5,7 @@ I am currently pursuing BS Information Technology Student @ University of Santo 
 
 If any interest comes to mind, I'll take my chances if it meant improving oneself.
 
-· ───•⋅⊰   <b>Enthusiastic in learning Java</b>   ⊱⋅•─── ·
+₊˚ ✧ · ──────── •⋅⊰   <b>Enthusiastic in learning Java</b>   ⊱⋅• ──────── · ✧ ₊˚
 <br><br><br>
 Check out my projects [here](https://github.com/pwellly?tab=projects)!
 
